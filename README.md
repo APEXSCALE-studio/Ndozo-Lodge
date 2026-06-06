@@ -1,1 +1,1 @@
-# Ndozo-Lodge
+# Ndozo-lodge
